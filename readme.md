@@ -1,0 +1,1 @@
+I've created a website for my partner's fictional physical therapy clinic. I've included his service offerings as well as his bio on my linked pages.
